@@ -21,4 +21,7 @@ Other                    No
 Rename Any Of these files with ease
 
 Note:
-I do not own any copyright for these files these can be copied, pasted, edited, shared without any limitation
+I do not own any copyright for these files these can be copied, pasted, edited, shared without any limitation.
+However I do not give you permission to edit the webpage. In other words, you can download and edit but you cannot commit changes onto this webpage.
+
+Enjoy!
