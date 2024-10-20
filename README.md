@@ -16,3 +16,9 @@ Windows 7 or older       Limited
 Mac (any version)        No
 Linux (any version)      No
 Other                    No
+
+
+Rename Any Of these files with ease
+
+Note:
+I do not own any copyright for these files these can be copied, pasted, edited, shared without any limitation
